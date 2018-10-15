@@ -16,4 +16,4 @@
 ---
 
 
-[🐆.gq](xn--xn8h.gq)
+[🐆.gq](https://xn--xn8h.gq)
